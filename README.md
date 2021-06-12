@@ -1,0 +1,2 @@
+# classicrights
+Classic rights
